@@ -10,4 +10,4 @@
 
 Aqui está um dos meus [PROJETOS](https://editor.p5js.org/davi.gorges/full/qP5ygVvqk)
 
-![](https://media1.tenor.com/m/pvgQo_nLl3sAAAAd/han.gif)
+![](https://media1.tenor.com/m/GX9K74pZjjcAAAAC/terans-athletico.gif)
